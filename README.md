@@ -1,1 +1,0 @@
-# vasylchenkokaryna.github.io
